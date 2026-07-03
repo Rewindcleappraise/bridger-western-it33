@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with smart bridger western Script, the #1 Script. Includes speed and unlimited stamina for unbeatable
 
 
 
